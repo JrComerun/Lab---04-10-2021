@@ -1,1 +1,1 @@
-# Lab---04-10-2021
+# Labda iwtirak etmiyenler ucun
